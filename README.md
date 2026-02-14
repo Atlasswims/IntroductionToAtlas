@@ -135,6 +135,6 @@ Idk how those ppl do strawpage dawg
 thats it bye
 (Clumsy is so gay and im gay for her lets goo gang) 
 
-feel free to c+d always encouraged ^_^
+feel free dm i will be 24/7 online unless im busy ^_^
 
-*dni list: another person who named Atlas, don, maiko, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
+*dni list: another person who named Atlas, don, maiko, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int, esther*
