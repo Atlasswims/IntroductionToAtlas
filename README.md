@@ -3,9 +3,9 @@
 
 age: 17 {Prefers to int 15+/ dni 15-}
 
-'Prefers to go as:7, Seven **ONLY** nothing unless yer Esther but sev is fine
+'Prefers to go as:Atlasswims or Atlas, Atlas **ONLY** nothing unless yer Clumsy or close people
 
-Gender:a Male but has zero interest in woman but being friend is fine.
+Gender:a Male and taken
 
 ![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
@@ -131,8 +131,8 @@ Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 
 Idk how those ppl do strawpage dawg
 thats it bye
-{Esther is gay for me trust]
+(Clumsy is so gay and im gay for her lets goo gang) 
 
 feel free to c+d always encouraged ^_^
 
-*dni list: Atlas, don, maiko, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
+*dni list: another person who named Atlas, don, maiko, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
