@@ -1,5 +1,7 @@
 # Read-Me-To-Know-About-Me
-'Doesnt mind cuddles or sitting with me unless I have "dniuf, dniue" on please respect that, Thank y'
+'Dont talk to me if my day is terrible or yer in dni or pedo i will instantly block you' 
+
+My discord is my username
 
 age: 17 {Prefers to int 15+/ dni 15-}
 
