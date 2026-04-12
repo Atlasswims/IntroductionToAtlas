@@ -5,7 +5,7 @@ My discord is my username
 
 age: 17 {Prefers to int 15+/ dni 15-}
 
-'Prefers to go as:Atlasswims or Atlas, Atlas **ONLY** nothing unless yer Clumsy or close people
+'Prefers to go as:Atlasswims or Atlas, Atlas **ONLY** nothing unless yer close people
 
 Gender:a Male and taken
 
@@ -131,9 +131,7 @@ Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 ![checkyshka on twt](https://github.com/user-attachments/assets/1a8b09ab-3812-43c4-be7e-ef76831c4c7d)
 
 
-Idk how those ppl do strawpage dawg
-thats it bye
-(Clumsy is so gay and im gay for her lets goo gang) 
+raaaawwww quuuinn
 
 feel free dm i will be 24/7 online unless im busy ^_^
 
