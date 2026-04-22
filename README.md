@@ -128,6 +128,14 @@ joined alien stage fandom lmao
 
 Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 
+ivantill(ivan x till)
+
+banlaser (banhammer x hyperlaser)
+
+Nolabie(nolan x debbie)
+
+NosferatuAtlas(NosferatuQuinn x Atlasswims)
+
 ![checkyshka on twt](https://github.com/user-attachments/assets/1a8b09ab-3812-43c4-be7e-ef76831c4c7d)
 
 
