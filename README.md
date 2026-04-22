@@ -7,7 +7,7 @@ age: 17 {Prefers to int 15+/ dni 15-}
 
 'Prefers to go as:Atlasswims or Atlas, Atlas **ONLY** nothing unless yer close people
 
-Gender:a Male and taken
+Gender:a Male and taken by MY HUSBAND QUINN
 
 ![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
