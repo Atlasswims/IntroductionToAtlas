@@ -7,7 +7,7 @@ age: 17 {Prefers to int 15+/ dni 15-}
 
 'Prefers to go as:Atlasswims or Atlas, Atlas **ONLY** nothing unless yer close people
 
-Gender:a Male and taken by MY HUSBAND QUINN
+Gender:a Male and Aroace(not interested in relationship)
 
 ![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
@@ -134,12 +134,16 @@ banlaser (banhammer x hyperlaser)
 
 Nolabie(nolan x debbie)
 
-NosferatuAtlas(NosferatuQuinn x Atlasswims)
+optimus prime x megatron
 
 ![checkyshka on twt](https://github.com/user-attachments/assets/1a8b09ab-3812-43c4-be7e-ef76831c4c7d)
 
+online - yay im happy im joyful
 
-raaaawwww quuuinn
+idle - ok im feeling nothing
+
+do not disturb - interact with extreme care or be ignored
+
 
 feel free dm i will be 24/7 online unless im busy ^_^
 
